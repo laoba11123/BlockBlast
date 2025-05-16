@@ -67,7 +67,7 @@ No internet? No problem. **Block Blast is fully playable offline**, making it id
 
 If you enjoy games like Tetris, 1010!, or Sudoku, then **Block Blast should be next on your download list**. It offers the perfect blend of **relaxation, focus, and challenge** — all in a sleek, modern format.
 
-👉 **Start playing now:** [https://nowgames.net/game/block-blast](https://nowgames.net/game/block-blast)
+👉 **Start playing now:** [https://nowgames.net/game/block-blast](https://nowgames.net/game/block-blast?utm_source=laoba11123)
 
 Block Blast should be the puzzle game you didn’t know you were missing. But now that you do — there’s no excuse not to try.
 
