@@ -3,8 +3,7 @@
 
 If you're on the hunt for a mobile game that's both relaxing and brain-stimulating, **Block Blast** should be your go-to. In an era where attention is short and stress is high, **you should be playing a game that brings clarity, challenge, and satisfaction** — and **Block Blast** delivers on all three fronts.
 
-👉 **Play now:** [https://nowgames.net/game/block-blast](https://nowgames.net/game/block-blast?utm_source=laoba11123 )   
-![微信截图_20250516171717](https://github.com/user-attachments/assets/5a63f553-00d3-4cd8-8932-05da590e52aa)
+👉 **Play now:**
 
 
 ---
@@ -67,7 +66,7 @@ No internet? No problem. **Block Blast is fully playable offline**, making it id
 
 If you enjoy games like Tetris, 1010!, or Sudoku, then **Block Blast should be next on your download list**. It offers the perfect blend of **relaxation, focus, and challenge** — all in a sleek, modern format.
 
-👉 **Start playing now:** [https://nowgames.net/game/block-blast](https://nowgames.net/game/block-blast?utm_source=laoba11123)
+👉 **Start playing now:** 
 
 Block Blast should be the puzzle game you didn’t know you were missing. But now that you do — there’s no excuse not to try.
 
