@@ -3,7 +3,7 @@
 
 If you're on the hunt for a mobile game that's both relaxing and brain-stimulating, **Block Blast** should be your go-to. In an era where attention is short and stress is high, **you should be playing a game that brings clarity, challenge, and satisfaction** — and **Block Blast** delivers on all three fronts.
 
-👉 **Play now:** https://nowgames.net/game/block-blast?utm_source=laoba11123
+👉 **Play now:** [https://nowgames.net/game/block-blast](https://nowgames.net/game/block-blast?utm_source=laoba11123)
 
 
 ---
